@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Buster<br>👯 I’m looking to collaborate on myself
+🔭 I’m currently working on Βοts<br>👯 I’m looking to collaborate on myself
 
 
 ## 🌐 Socials:
